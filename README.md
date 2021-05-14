@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Avatar521999
+- 👋 Hi, I’m @Avatar
 - 👀 I’m interested in learning About Artificial Intelligence
 - 🌱 I’m currently learning some Basic
 - 💞️ I’m looking to collaborate ....
